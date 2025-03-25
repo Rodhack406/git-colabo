@@ -1,1 +1,1 @@
-Team lead: [Patrick Kayombo]
+Team lead: [GIFT NGOSA]
