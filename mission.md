@@ -1,1 +1,1 @@
-Team lead: [Kayombo Patrick]
+Team lead: [Patrick Kayombo]
