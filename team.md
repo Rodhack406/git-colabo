@@ -1,2 +1,2 @@
-Team lead: [ROYD NAYMBE]
+Team lead: [Royd Nyambe]
 
